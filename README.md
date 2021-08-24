@@ -1,1 +1,1 @@
-👋 Hi, I’m @DanyilVoloschuk and I like spaghetti
+👋 HI, I'M @DanyilVoloschuk, 👸QUEEN👸 OF GIT REBASE
